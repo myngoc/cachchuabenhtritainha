@@ -14,6 +14,7 @@ Vệ sinh sạch vùng hậu môn, lâu khô rồi sử dụng nghệ đắp và
 Để nghệ tầm 10 -15 phút cho nước nghệ thấm vào vùng trĩ rồi bỏ ra rửa sạch lại bằng nước
 kiên trì thực hiện trong 1 vài tháng bạn sẽ hạn chế được tình trạng khó chịu do trĩ gây ra. Những vết thương viêm nhiễm cải thiện nhìn thấy, búi trĩ sẽ thu nhỏ lại đem lại cảm giác dễ chịu.
 
+http://baovesuckhoe.mystrikingly.com/blog/tim-hieu-benh-tri-qua-nguyen-nhan-bieu-hien-va-cach-chua-tri
 
 -----
 2/ cách thức chữa bệnh trĩ ngoại bằng vỏ quả lựu
@@ -178,3 +179,7 @@ rẻ hơn nữa hiệu quả nhân đôi là bạn sử dụng nước cây ph�
 Mật ong sở hữu hầu hết công dụng trong khoảng khiến đẹp tới chữa bệnh. Và trĩ cũng không nằm ngoài số đấy bạn sở hữu thể dùng trực tiếp riêng mật ong để bôi nên vùng trĩ. Mật ong có tính kháng viêm cao nên sẽ khiến cho giảm sưng, phù nài và tiêu viêm cho búi trĩ rất khả quan.
 
 bí quyết chữa bệnh trĩ tại nhà để đạt hiệu quả cao hơn thì bạn sở hữu thể ép 1 ít nước củ cải đỏ rồi trộn chung với mật ong rồi xoa lên vùng bị trĩ.
+
+https://thongtinbenhtri.readthedocs.io/en/latest/
+https://benh-hau-mon.readthedocs.io/en/latest/
+https://bienchungbenhtri.readthedocs.io/en/latest/
